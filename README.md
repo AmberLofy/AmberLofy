@@ -12,7 +12,7 @@
 
 - 🌱 Estudando Ciência de Dados com Python
 - 😄 Pronouns: ela/dela
-- 📫 Como chegar até mim: [Discord](discord.com/users/1163420819649736724)
+- 📫 Como chegar até mim: [Discord](www.discord.com/users/1163420819649736724)
 
 <hr>
 
